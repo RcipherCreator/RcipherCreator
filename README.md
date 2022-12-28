@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @RcipherCreator.
+- 👀 I’m interested in: Nunya.
+- 🌱 I’m currently learning: About Nunya.
+- 💞️ I’m looking to collaborate on: Nothing.
+- 📫 How to reach me: Don't.
+- Leave me alone.
